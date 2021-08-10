@@ -1,8 +1,0 @@
-# terrorust-truckdriver-attacks-in-maastricht
-
-
-# psychoahy
-https://en.wikipedia.org/wiki/Psychopathy
-
-# social media
-https://nl.wikipedia.org/wiki/Sociale_media
